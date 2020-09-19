@@ -12,7 +12,7 @@
 
 **Phone number:** +375 (33) 3832766
 
-**Linkedin:** [link](www.linkedin.com/in/artsem-kalinin-b7784015b/)
+**Linkedin:** [link](https://www.linkedin.com/in/artsem-kalinin-b7784015b/)
 
 ## Summary
 Now I'm free for a new opportunities. So I decided to take courses to test myself and my knowledge. To exclude possible spaces, learn something new. And find new connections.
